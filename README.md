@@ -1,4 +1,4 @@
 # Обо мне
 - _люблю природу_,_рыбалку_
 - _спорт,_ _музыку_
-  ![Альтернативный текст](C:\Users\ilya1\Downloads\9606898700fbc5af3bfbf44de8e18a25.jpg)
+  ![](https://crosti.ru/patterns/00/17/8c/28_picture_d6381d82.jpg)
